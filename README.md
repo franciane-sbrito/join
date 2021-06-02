@@ -1,2 +1,2 @@
 # Join Luby
-💻  Open positions on [Luby Software](https://www.google.com "Luby Software") Company.
+Link de acesso da aplicação: lyrical-sound.surge.sh
